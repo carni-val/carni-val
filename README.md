@@ -10,7 +10,7 @@
 
 im aro/ace and fictoromantic !
 
-feel free to c*h or int ! im chill and dont bite, unless you broke the boundaries:v
+feel free to c*h or int ! im chill most of the time ദ്ദി(˵•̀ ᴗ -˵)
 
 **comforts ; jester + pierrot (tfc) . 14 (xfohv) . blot + dandy (dw) . banhammer (phighting) . floyd (twt/trolls)**
 
