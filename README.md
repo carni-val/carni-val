@@ -8,6 +8,7 @@
 
 ! minor x-) 14-17y/o range   .    ***🎂29th jan***
 
+im aro/ace and fictoromantic !
 
 feel free to c*h or int ! im chill and dont bite, unless you broke the boundaries:v
 
@@ -21,6 +22,10 @@ DID sys ! check my discord status for front , you can check my gun.lol instead s
 
 
 ## BYI + DNI
+
+
+dont use they/them on me. **only** use she/her, unless close friends (moots in the list). im aroace, so please dont flirt with me. 
+
 
 - under the age of 13 , thats a big no.
 - forsaken fans, twotime kins : you know who you are.
