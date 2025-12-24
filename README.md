@@ -13,6 +13,11 @@ feel free to c*h or int ! im chill and dont bite, unless you broke the boundarie
 
 **comforts ; jester + pierrot (tfc) . 14 (xfohv) . blot + dandy (dw) . banhammer (phighting) . floyd (twt/trolls)**
 
+---
+
+DID sys ! check my discord status for front , you can check my gun.lol instead so you dont need to add my discord :-)
+
+---
 
 
 ## BYI + DNI
