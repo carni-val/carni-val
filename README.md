@@ -21,11 +21,22 @@ DID sys ! check my discord status for front , you can check my gun.lol instead s
 ---
 
 
-## BYI + DNI
+## BYI
 
 
-dont use they/them on me. **only** use she/her, unless close friends (moots in the list). im aroace, so please dont flirt with me. 
 
+dont use they/them on me. **only** use she/her, unless close friends (moots in the list). im aroace, so please dont flirt with me. i have typing quirk! example,, "hi uhh i ate fries today:)" (not exactly nervous, but i have a hard time on choosing words, as well as reading. im slow.) "hi!! thank you ;; you too:D" (';;' or '::' meant to be a large space, neutual or smt shruggsss) and double characters "hi im gooooddd hbuu" (normal, just exited or neutual:))
+i dont use tonetags, please ask me to use them on you or smt. but you must use tonetags on me, (only /j or /srs, gen).
+
+i dont exactly ship those like, "harlequin x pierrot" i saw them as brothers and i think they are😭 avoid talking to me about this topic if you ship those ;; youre on thin ice.
+
+dont mention about any ships on pierrot, jester or harlequin (ex, pierrot x columbina) i dont like seeing my f/o being with another women ;; in game !! selective yume on those 3 twinks also :-) i share with moots
+
+i dont exactly love having people calling me ho, bitch or anything. so do not call me those unless close moots! i will block or hide:-)
+
+
+### DNI
+---
 
 - under the age of 13 , thats a big no.
 - forsaken fans, twotime kins : you know who you are.
