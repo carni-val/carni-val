@@ -8,7 +8,7 @@
 
 ! minor x-) 14-17y/o range   .    ***🎂29th jan***
 
-im aro/ace and fictoromantic !
+im omnisexual and fictoromantic !
 
 feel free to c*h or int ! im chill most of the time ദ്ദി(˵•̀ ᴗ -˵) always w2i, i sometimes have public chat off 😝
 
@@ -25,7 +25,7 @@ DID sys ! check my discord status for front , you can check my gun.lol instead s
 
 i sometimes overuse emoji, mostly on 👀 and 😝 ;; theyre cute yk..
 
-dont use they/them on me. **only** use she/her, unless close friends (moots in the list). im aroace, so please dont flirt with me. i have typing quirk! example,, "hi uhh i ate fries today:)" (not exactly nervous, but i have a hard time on choosing words, as well as reading. im slow.) "hi!! thank you ;; you too:D" (';;' or '::' meant to be a large space, neutual or smt shruggsss) and double characters "hi im gooooddd hbuu" (normal, just exited or neutual:))
+dont use they/them on me. **only** use she/her, unless close friends (moots in the list). i have typing quirk! example,, "hi uhh i ate fries today:)" (not exactly nervous, but i have a hard time on choosing words, as well as reading. im slow.) "hi!! thank you ;; you too:D" (';;' or '::' meant to be a large space, neutual or smt shruggsss) and double characters "hi im gooooddd hbuu" (normal, just exited or neutual:))
 i dont use tonetags, please ask me to use them on you or smt. but you must use tonetags on me, (only /j or /srs, gen).
 
 i dont exactly ship those like, "harlequin x pierrot" i saw them as brothers and i think they are😭 avoid talking to me about this topic if you ship those ;; youre on thin ice.
